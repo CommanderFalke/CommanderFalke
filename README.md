@@ -1,3 +1,1 @@
-#<h3 align+"center">"I saw her, in the red emptiness, waiting for me."
-![Falke](https://github.com/user-attachments/assets/2ecef1d1-56ab-4931-b1bd-fb40d77f85ea.gif)
-#<h3 align+"center">"We had made a promise." 
+https://github.com/user-attachments/assets/a671d32f-5a4d-4a6f-9da0-ec4af22a6f52
