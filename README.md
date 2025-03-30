@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/816a9451-7bde-418a-b9c7-d447830dadeb)
+![Image](https://github.com/user-attachments/assets/94b653a4-e1ec-43f4-910b-32b7ec7e10a2)
 
 artist credits
 
